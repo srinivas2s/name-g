@@ -1,2 +1,1 @@
-# nothing 
-uu
+# you only live once 
